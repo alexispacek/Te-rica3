@@ -1,1 +1,1 @@
-# Te-rica3
+# Teórica3
